@@ -18,6 +18,6 @@ We don't need another machine that can generate strings of text that seem cohere
 
 Or another machine that can outsmart us in strategy games. ♟
 
-I personally would care for a machine that knows how I feel and wants to enter a relationship with me. 🤖
+I personally would care for a machine that cares about how I feel and wants to bond with me. 🤖
 
 And once we have that, we can talk about language and problem solving!
