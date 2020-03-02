@@ -8,7 +8,7 @@ Well, first of all, dogs are cute! 🐶
 
 Second of all, dogs form real social bonds with people. 🐶🥰
 
-Third, dogs have empathy, they no when you're feeling down and when you need to be cheered up.
+Third, dogs have empathy, they know when you're feeling down and when you need to be cheered up.
 
 Dogs can catch frisbees out of the air. 🥏
 
